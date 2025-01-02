@@ -17,8 +17,6 @@
 
 - 📫 How to reach me **vm688134@gmail.com**
 
-- 📄 Know about my experiences [I made one but it look to short](I made one but it look to short)
-
 - ⚡ Fun fact **I think I am funny **
 
 <h3 align="left">Connect with me:</h3>
