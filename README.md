@@ -15,7 +15,7 @@
 
 - 📝 LinkedIn [www.linkedin.com/in/vishal-maurya-5b51b4303](www.linkedin.com/in/vishal-maurya-5b51b4303)
 
-- 📫 How to reach me **vm688134@gmail.com**
+- 📫 How to reach me email me **vm688134@gmail.com**
 
 - ⚡ Fun fact **I think I am funny **
 
