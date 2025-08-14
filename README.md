@@ -13,7 +13,7 @@
 
 - 👨‍💻 All of my projects are available at [www.github.com/ghostdeveloper404](www.github.com/ghostdeveloper404)
 
-- 📝 LinkedIn [www.linkedin.com/in/vishal-maurya-5b51b4303](www.linkedin.com/in/vishal-maurya-5b51b4303)
+- 📝 LinkedIn [www.linkedin.com/in/vishal-maurya-5b51b4303](www.linkedin.com/in/ghostdeveloper404)
 
 - 📫 How to reach me email me **vm688134@gmail.com**
 
