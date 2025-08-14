@@ -5,11 +5,11 @@
 
 - 🔭 I’m currently working on **Memoriframe**
 
-- 🌱 I’m currently learning **Full stack development**
+- 🌱 I’m currently learning **Machine learning and ai**
 
-- 👯 I’m looking to collaborate on **Full Stack project**
+- 👯 I’m looking to collaborate on **Full Stack projects**
 
-- 🤝 I’m looking for help with **Full stack devlopment**
+- 🤝 I’m looking for help with **Current working project**
 
 - 👨‍💻 All of my projects are available at [www.github.com/ghostdeveloper404](www.github.com/ghostdeveloper404)
 
